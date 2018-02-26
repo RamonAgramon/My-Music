@@ -13,3 +13,10 @@ Back in Black.
 November Rain.
 Imagine.
 We Will Rock You.
+
+Romanticas
+Tus Latidos
+Ya me vi.
+Yo se.
+Me gusta.
+Me voy.
